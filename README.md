@@ -27,14 +27,6 @@
 
 6. Support for Multiple Platforms:   Windows is presently supported; macOS compatibility is being developed.
 
-### How to Use the Keygen:
-*(Please note: Instructions may vary depending on the exact keygen used)*
-
-1. Download the appropriate ZBrush installation file.
-2. Install ZBrush.
-3. Run the keygen.
-4. Enter the generated key.
-5. Complete the activation process in ZBrush.
 
 ### Legal Considerations:
 
