@@ -6,7 +6,6 @@
 
 <h1>ZBrush Keygen 2024 for Windows</h1>
 
-<p dir="ltr"><img src="https://via.placeholder.com/150" alt="ZBrush Keygen" style="max-width: 100%;"></p>
 
 
 
